@@ -1,1 +1,4 @@
 # zebronics-lg
+
+The Boat is an Indian Company established in 2015 in Delhi. The CEO of the Boat is Aman Gupta. From the day of its launch, it's appreciated for its quality. In 2020, the boat company became the fifth-largest wearable brand globally, and it is the first Indian company to get that title.Rajesh Doshi is the driving force behind the brand Zebronics. In the year 1997, Mr. Doshi envisioned IT Hardware as a field with high growth potential and initiated the incorporation of Top Notch Infotronix India Pvt Ltd, the company that owns Zebronics brand.5.0 out of 5 stars Strongly recommend. Zebronics has always been making supremely good yet affordable Products. At such a low price it's really a nice product. Bluetooth aux radio and various types of wired connections as well.
+Zebronics is another Indian company that manufactures earphones and headphones. The company was established in the year 1997 and the headquarters of the company is in Chennai.
